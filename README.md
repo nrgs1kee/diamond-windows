@@ -1,2 +1,1 @@
-# diamond-windows
-xeno rebrand
+nigger
